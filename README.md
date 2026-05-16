@@ -1,2 +1,2 @@
 # wannatie.com
-Wannatie is a furniture and interior design initiative.
+Wannatie | Shop Furniture & Statement Pieces
