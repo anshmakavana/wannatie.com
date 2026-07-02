@@ -1,2 +1,2 @@
 # wannatie.com
-Wannatie | Shop Furniture & Statement Pieces
+Wannatie | Shop Furniture & Furnishings
